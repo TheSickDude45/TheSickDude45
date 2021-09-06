@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TheSickDude45
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning maths
+- 💞️ I’m looking to collaborate on my friend's YouTube channel
+- 📫 Reach me by email at thesickdude45@gmail.com
